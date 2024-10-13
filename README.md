@@ -1,0 +1,1 @@
+I was selected as an Intern at Prodigy Infotech for a duration of 1 month(1/OCT/24-30/OCT/2024). This repository contains the files and folders that were created during the period of my Internship.
